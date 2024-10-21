@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @colin1uphealth
+- 👀 I’m interested in computer
+- 🌱 I’m currently learning computer
+- 💞️ I’m looking to collaborate on computer
+- 📫 How to reach me computer
+- 😄 Pronouns: computer
+- ⚡ Fun fact: computer
